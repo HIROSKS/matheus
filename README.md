@@ -5,8 +5,6 @@ Bem-vindo ao repositório do MTHZZ! Este é o espaço dedicado a um entusiasta d
 Sobre MTHZZ
 MTHZZ é um amante de carros com um profundo interesse em diferentes aspectos do mundo automotivo. Desde a engenharia de veículos até as últimas tendências em modificação e personalização, MTHZZ está sempre em busca de novos conhecimentos e experiências.
 
-https://tenor.com/pt-BR/view/jmd-japanese-cars-drift-night-gif-23336893
-
 Sobre MTHZZ
 MTHZZ é um amante de carros com um profundo interesse em diferentes aspectos do mundo automotivo. Desde a engenharia de veículos até as últimas tendências em modificação e personalização, MTHZZ está sempre em busca de novos conhecimentos e experiências.
 
